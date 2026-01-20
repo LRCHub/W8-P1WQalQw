@@ -1,4 +1,4 @@
-# RADWIMPS – 正解 (18FES ver.)
+# Radwimps – 正解 (18FES ver.)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
